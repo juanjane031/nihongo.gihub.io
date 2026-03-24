@@ -1,1 +1,0 @@
-# nihongo.gihub.io
